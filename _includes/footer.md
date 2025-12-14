@@ -1,1 +1,1 @@
-Shop the laserdisc inventory at the [Laserdisc Database](https://www.lddb.com/shops/lvdisc/) &nbsp;&nbsp;&nbsp;&nbsp; ![Visitor Count](https://profile-counter.glitch.me/{YOUR USER}/count.svg)
+Shop the laserdisc inventory at the [Laserdisc Database](https://www.lddb.com/shops/lvdisc/) &nbsp;&nbsp;&nbsp;&nbsp; Visitor Count&nbsp;&nbsp;<a href="https://www.freecounterstat.com" title="web counter"><img src="https://counter1.optistats.ovh/private/freecounterstat.php?c=ff2dht3mt6eyutpm21e1t9cej7hlcq58" border="0" title="web counter" alt="web counter"></a>
