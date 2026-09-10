@@ -1,1 +1,1 @@
-Shop the laserdisc inventory at the [Laserdisc Database](https://www.lddb.com/shops/lvdisc/) &nbsp;&nbsp;&nbsp;&nbsp; Visitor Count&nbsp;&nbsp;<a href='https://www.counter12.com'><img src='https://www.counter12.com/img-wabB1x0BY35Y4B6y-3.gif' border='0' alt='web counter free'></a><script type='text/javascript' src='https://www.counter12.com/ad.js?id=wabB1x0BY35Y4B6y'></script>
+Shop the laserdisc inventory at the [Laserdisc Database](https://www.lddb.com/shops/lvdisc/) &nbsp;&nbsp;&nbsp;&nbsp; Visitor Count&nbsp;&nbsp;
